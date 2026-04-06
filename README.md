@@ -1,4 +1,5 @@
 # Hello, my name is Luis Alberto!
+https://github.com/user-attachments/assets/bc9f6b2d-fee2-46e7-9ddd-315ea747fd34
 
 ## Welcome to my GitHub profile 👋
 
